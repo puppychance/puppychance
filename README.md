@@ -1,5 +1,5 @@
 # woofwoof
-![this is supposed to be chance banner](https://github.com/puppychance/woofwoof/blob/main/1a1e67844d7a2412fc5b11f7436b0921.jpg?raw=true)
+![this is supposed to be chance banner](https://i.pinimg.com/736x/1a/1e/67/1a1e67844d7a2412fc5b11f7436b0921.jpg)
 
 call me chance or max !!
 
